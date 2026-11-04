@@ -97,6 +97,6 @@ I'm particularly interested in opportunities to collaborate, participate in hack
 
 ## Connect With Me
 
-**GitHub:** [XenoOnYT](https://github.com/XenoOnYT)
+**GitHub:** [ShloKPatelCS](github.com/ShlokPatelCS)
 
 **LinkedIn:** www.linkedin.com/in/shlok-patel-1ab3ba355
