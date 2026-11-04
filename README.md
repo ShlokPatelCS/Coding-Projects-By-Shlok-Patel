@@ -99,4 +99,4 @@ I'm particularly interested in opportunities to collaborate, participate in hack
 
 **GitHub:** [XenoOnYT](https://github.com/XenoOnYT)
 
-**LinkedIn:** Add your LinkedIn profile URL here
+**LinkedIn:** www.linkedin.com/in/shlok-patel-1ab3ba355
